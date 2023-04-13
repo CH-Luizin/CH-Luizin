@@ -5,10 +5,10 @@
 
 ## Sobre mim (VALORANT):
 
-- Tryhardando para sair do Bronze (Elo atual: Bronze 3, 24 RR).
-- Estou aprendendo muito sobre o jogo com streamers, como FRTTT e Xarola.
-- Já tenho vários duos, só acabo não jogando sempre com eles.
-- Dá queue no Bronze ou Prata entre 20 e 22h da noite que tu acha meu Chamber manco :)
+- Tryhardando para sair do Prata (Elo atual: Prata 2 (já fui Ouro), 70+- RR).
+- Estou aprendendo muito sobre o jogo com streamers, como FRTTT e Xarola (Troll e Main Yoru).
+- Inimigo dos duos.
+- Dá queue no Prata entre 20 e 22h da noite que tu acha minha Killjoy/Viper god do Prata :)
 
 ## Sobre mim (Pokémon Unite):
 
@@ -19,7 +19,7 @@
 |4|1450|
 
 - Temporada 5 acabei no Ultra, estou **bem** inativo.
-- Quase fui Pro Player, chegando a até cogitar essa possibilidade durante um período.
+- Quase fui Pro Player, chegando a cogitar a possibilidade hoje em dia.
 - Membro (inativo) da STT (Stomp Top Team).
 - Main Absol, mas tenho experiência com quase todos os Pokémons e roles (menos Hoopa).
 - Hoje, jogando apenas de vez em quando, mas disposto a voltar.
@@ -27,9 +27,9 @@
 ## Sobre mim (Brawl Stars):
 
 - Jogo desde Abril de 2019 (Época de lançamento do Carl).
-- Comprei quase todos os passes (Exceções do 1°, 12° e 13°).
-- Tenho mais de 50 skins, somando todas as contas.
+- Comprei quase todos os passes (Exceções do 1°, 12°, 13°, 14°, 15° e 16°).
+- Tenho mais de 50 skins, somando todas as contas. (69 pra ser mais exato, laele).
 - Tenho 6 contas, todas acima de 2500 troféus.
 - Primeiro lendário liberado em 09/05/2020 (Sandy).
-- Amo Fang, Eugênio e Sandy.
-- 29000 troféus na principal, com todos os brawlers liberados, quase todos level 9.
+- Amo Fang, Eugênio, Sandy, Wattson, Colette e Ash.
+- 33k de troféus na principal, com quase todos os brawlers liberados, todos level 9.
