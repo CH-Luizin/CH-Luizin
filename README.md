@@ -5,7 +5,7 @@
 
 ## Sobre mim (VALORANT):
 
-- Tryhardando para sair do Prata (Elo atual: Prata 2 (já fui Ouro), 70+- RR).
+- Tryhardando para sair do Prata (Elo atual: Prata 3 (já fui Ouro)).
 - Estou aprendendo muito sobre o jogo com streamers, como FRTTT e Xarola (Troll e Main Yoru).
 - Inimigo dos duos.
 - Dá queue no Prata entre 20 e 22h da noite que tu acha minha Killjoy/Viper god do Prata :)
@@ -28,8 +28,8 @@
 
 - Jogo desde Abril de 2019 (Época de lançamento do Carl).
 - Comprei quase todos os passes (Exceções do 1°, 12°, 13°, 14°, 15° e 16°).
-- Tenho mais de 50 skins, somando todas as contas. (69 pra ser mais exato, laele).
+- Tenho mais de 50 skins, somando todas as contas. (71+ no mínimo).
 - Tenho 6 contas, todas acima de 2500 troféus.
 - Primeiro lendário liberado em 09/05/2020 (Sandy).
-- Amo Fang, Eugênio, Sandy, Wattson, Colette e Ash.
+- Amo Fang, Eugênio, Sandy, Wattson, Colette, Ash e Gray.
 - 33k de troféus na principal, com quase todos os brawlers liberados, todos level 9.
