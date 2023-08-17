@@ -33,3 +33,10 @@
 - Primeiro lendário liberado em 10/05/2020 (Sandy).
 - Amo Fang, Lola, Sandy, Wattson, Colette, Ash e Gray.
 - 35k de troféus na principal, com quase todos os brawlers liberados, todos level 9.
+
+# Sobre mim (SF6):
+
+- Jogo desde o lançamento, sendo o primeiro fighting game que me dedico de fato.
+- Main Manon, mas sei utilizar Marisa e Chun-Li também.
+- Rank da Manon é Platina 4, + especificamente 17200 pontos. Enquanto Chun-Li e Marisa estão mais ou menos com 12200.
+- Vontade de aprender Juri ou Ken, mas esperando o lançamento do Ed.
