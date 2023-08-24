@@ -37,6 +37,6 @@
 # Sobre mim (SF6):
 
 - Jogo desde o lançamento, sendo o primeiro fighting game que me dedico de fato.
-- Main Manon, mas sei utilizar Marisa e Chun-Li também.
-- Rank da Manon é Platina 4, + especificamente 17200 pontos. Enquanto Chun-Li e Marisa estão mais ou menos com 12200.
-- Vontade de aprender Juri ou Ken, mas esperando o lançamento do Ed.
+- Main Manon, com Ken de secundário. Mas sei utilizar Marisa e Chun-Li também.
+- Rank da Manon é Platina 4, + especificamente 17200 pontos. Enquanto Chun-Li, Marisa e Ken estão mais ou menos com 12200.
+- Vontade de aprender Juri, mas esperando o lançamento do Ed.
