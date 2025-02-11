@@ -5,7 +5,7 @@
 
 ## Sobre mim (VALORANT):
 
-- Tryhardando para sair do Prata (Elo atual: Prata 1 (já fui Ouro, maldito reset de ato aaaaaaaaaaaaaa)).
+- Tryhardando para sair do Prata (Elo atual: Prata 1 (já fui Ouro, maldito reset de ato aaaaaaaaaaaaaa)) (O ano é 2025, e eu consegui ser Platina... e voltar pra karalha do Prata KKKKKKKK).
 - Estou aprendendo muito sobre o jogo com streamers, como fOrsaken e Xarola (Troll e Main Yoru).
 - Inimigo dos duos.
 - Dá queue no Prata entre 20 e 22h da noite que tu acha minha Killjoy/Viper god do Prata :)
